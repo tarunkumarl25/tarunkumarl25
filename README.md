@@ -1,0 +1,2 @@
+I am Tarun. I am pursuing my undergraduate degree in Computer Science Engineering, with a strong passion full stack, Spring Boot, Cloud, Deveops and Software Development. Motivated and driven intern with a strong determination to succeed. Possessing a diligent work ethic and a high
+level of motivation. Eager to contribute combined knowledge and skills to enhance business performance. Goal is to leverage abilities to drive meaningful outcomes and continue developing expertise in challenging areas.
